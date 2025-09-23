@@ -1,1 +1,0 @@
-# Actividad13_VeraRomina
